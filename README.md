@@ -1,1 +1,1 @@
-# community-design-glossary
+# future-forward-vernacular
